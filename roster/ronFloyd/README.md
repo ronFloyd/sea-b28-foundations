@@ -16,6 +16,6 @@ I started flying helicopters in 2005 and became a flight instructor in 2006. Whe
 
 #### My professional headshot:
 
-![Photo of me](https://www.dropbox.com/s/iwdlqbj22rio0jr/1.jpg?dl=0)
+![Photo of me](http://i.imgur.com/SMtoStD.jpg)
 
 I look forward to getting to know all of you and learning as much as possible together.
